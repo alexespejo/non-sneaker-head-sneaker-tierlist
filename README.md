@@ -16,7 +16,7 @@ _just bored_
 ### S-Tier 
 | Brand |  Model | Note |
 | ------- | ------ | ---|
-| Converse | Chuck 70  | Inexpensive for a durable comfortable shoe, also has wide foot option | 
+| Converse | Low-Top Chuck 70  | Inexpensive for a durable comfortable shoe, also has wide foot option | 
 | New Balance | 993 | Very expensive but for insanely noticeable quality of materials, build, and comfort, also has wide foot option |
 | New Balance | 574 |Quality shoe and comfort for the - relatively - inexpensive price, also has wide foot option |
 

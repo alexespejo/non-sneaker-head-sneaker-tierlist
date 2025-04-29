@@ -1,4 +1,5 @@
-# _Not a sneaker head, just bored_
+# _Not a sneaker head_
+_just bored_
 ### 📊 Generic shoe tier list
 
 
@@ -17,21 +18,21 @@
 | ------- | ------ | ---|
 | Converse | Chuck 70  | Inexpensive for a durable comfortable shoe, also has wide foot option | 
 | New Balance | 993 | Very expensive but for insanely noticeable quality of materials, build, and comfort, also has wide foot option |
-| New Balance | 574 | Inexpensive alternative to the 990 series but still a quality shoe and comfort that exceeds the - relatively - inexpensive price |
+| New Balance | 574 |Quality shoe and comfort for the - relatively - inexpensive price, also has wide foot option |
 
 ### A-Tier 
 | Brand |  Model | Note |
 | ------- | ------ | ---|
-| Crocs | Clog | idk, crocs |
-| ASICS | Gel NYC | Pretty lowkey, solid quality and comfort for the price | 
+| Crocs | Clog | crocs |
+| ASICS | Gel NYC | Price matches the quality and comfort | 
 
 ### B-Tier 
 | Brand |  Model | Note |
 | ------- | ------ | ---|
 | Onitsuka Tiger | Mexico 66 | Cool looking shoe with vintage history, but inaccessible in the U.S and sacrifices the vintage aesthetic for comfort |
-| New Balance | 550 | Also cool looking shoe with a vintage history, well constructed but difficult to break in |
+| New Balance | 550 | Cool looking shoe with a vintage history, well constructed but difficult to break in |
 
 ### C-Tier
 | Brand |  Model | Note |
 | ------- | ------ | ---|
-| Doc Martens | Adrian Loafers | They look cool at a glance but breaking them in is extremely painful (literally), required me to leave in a summer heated car for ~2 weeks till the leather was soft enough that it wouldn't blister my feet |
+| Doc Martens | Adrian Loafers | Look cool but requires a 2 week sun bath to warm the leather till they were wearable |

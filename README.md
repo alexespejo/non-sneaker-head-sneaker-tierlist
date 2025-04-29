@@ -23,7 +23,7 @@ _just bored_
 ### A-Tier 
 | Brand |  Model | Note |
 | ------- | ------ | ---|
-| Crocs | Clog | crocs |
+| Crocs | Clog | Can't stub my toe |
 | ASICS | Gel NYC | Price matches the quality and comfort | 
 
 ### B-Tier 

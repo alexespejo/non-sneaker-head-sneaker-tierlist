@@ -35,4 +35,4 @@ _just bored_
 ### C-Tier
 | Brand |  Model | Note |
 | ------- | ------ | ---|
-| Doc Martens | Adrian Loafers | Look cool but requires a 2 week sun bath to warm the leather till they were wearable |
+| Doc Martens | Adrian Loafers | Look cool but requires a 2 week sun bath to loosen the leather till they were wearable |

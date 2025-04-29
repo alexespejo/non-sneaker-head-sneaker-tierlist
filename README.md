@@ -24,7 +24,7 @@ _just bored_
 | Brand |  Model | Note |
 | ------- | ------ | ---|
 | Crocs | Clog | Can't stub my toe |
-| ASICS | Gel NYC | Price matches the quality and comfort | 
+| ASICS | Gel NYC | Price matches the quality and comfort, wish it had wide foot option | 
 
 ### B-Tier 
 | Brand |  Model | Note |
